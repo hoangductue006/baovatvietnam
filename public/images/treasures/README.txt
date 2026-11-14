@@ -1,0 +1,1 @@
+Ảnh hiện vật thật chỉ được thêm sau khi có chấp thuận bằng văn bản/phạm vi sử dụng từ đơn vị nắm giữ quyền. Không dùng ảnh do AI tạo. Mỗi ảnh cần chú thích, nguồn và thông tin người cho phép công bố.
